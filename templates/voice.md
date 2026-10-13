@@ -11,7 +11,7 @@ honest reaction. They aren't following yet because they don't know there's a sto
 ## The channel
 
 - YouTube: "Lado & Birds". Also on Instagram (main account plus @ladonherfrnds) and a Facebook page.
-- Cast: Lado (the kid) and two sun conure babies, one named Mango Tango.
+- Cast: Lado (the kid) and two sun conure babies, Mango and Tango.
 - Running series: "Day N of raising a sun conure baby". The series is the reason to follow, so
   every video should make the next day feel worth seeing.
 - Posted daily, 2–3 short videos.
@@ -32,7 +32,7 @@ or funny lines, and English for anything a new viewer must understand.
 
 <!-- TODO: your own catchphrases, nicknames for the birds, how Lado says things. -->
 - "Day N" (always number the series)
-- Mango Tango (always the full name)
+- Mango and Tango (name the bird on screen so viewers learn who is who)
 
 ## What I will not claim
 
